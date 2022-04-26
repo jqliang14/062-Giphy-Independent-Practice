@@ -1,1 +1,0 @@
-# 062-Giphy-Independent-Practice
